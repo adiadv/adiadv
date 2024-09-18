@@ -1,4 +1,4 @@
-Graduate Student in Physics- I currently work at North Carolina State University at DanielsLab. I am an experimentalist with experience in industry and academia. For the past few years I have been exploring soft matter physics and developing instrumentation used to forecast geohazards like earthquakes and landslides.
+Graduate Student in Physics- I currently work at The University of Chicago. I am an experimentalist with experience in industry and academia. For the past few years I have been exploring soft matter physics and developing instrumentation used to forecast geohazards like earthquakes and landslides.
 My work at DanielsLab at NCSU- https://www.adityaadvani.com/danielslab
 My work at SquishLab at Haverford College- https://www.adityaadvani.com/squishlab
 
